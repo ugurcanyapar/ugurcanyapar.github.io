@@ -1,2 +1,1 @@
-# uğurcan yapar
-# ugurcan yapar 
+
